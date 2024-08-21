@@ -10,4 +10,4 @@ Meu nome é **Alcides Henrique**
 
 - alcides.pinheiro@escola.pr.gov.br
 
-![image](https://github.com/user-attachments/assets/f70673ee-5467-49cf-a17a-6ec4cc728cd5)
+https://tenor.com/pt-BR/view/yeah-bwoi-grin-chef-gif-18525191
